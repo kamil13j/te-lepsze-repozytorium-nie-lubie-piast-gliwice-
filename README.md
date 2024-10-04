@@ -1,2 +1,2 @@
-# Burza Borowa Wieś to gówno
-##Repozytorium Radka i Kamila - kibiców Burzy 
+# Burza Borowa Wieś
+##Repozytorium Radka i Kamila - kibiców górnioka
