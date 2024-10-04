@@ -1,2 +1,2 @@
-# te-lepsze-repozytorium-nie-lubie-piast-gliwice-
-### tylko górnik
+# Burza Borowa Wieś
+##Repozytorium Radka i Kamila - kibiców Burzy 
