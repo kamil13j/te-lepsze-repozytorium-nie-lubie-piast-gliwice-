@@ -1,2 +1,2 @@
-# Burza Borowa Wieś
-##Repozytorium Radka i Kamila - kibiców górnioka
+# Burza Borowa Wieś - nie lubie
+##Repozytorium Radka i Kamila - kibiców górnika
